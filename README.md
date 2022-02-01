@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Fábio Nobre 😁
+## Bem-vindo(a) ao perfil do Fábio Nobre 😁 :croissant:
 
  <div>
   <a href="https://github.com/fabionobredev">
